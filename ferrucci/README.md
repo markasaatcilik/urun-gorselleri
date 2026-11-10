@@ -1,1 +1,0 @@
-Ferrucci gorselleri
